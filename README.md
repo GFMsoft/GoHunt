@@ -10,9 +10,10 @@ Entschuldigt bitte also die teilweise recht verwirrende Herangehensweise.
 
 Stand: Jul 2018
 
+_______________________________________________
 
 Lizenzinformationen zu Bildern:
-_______________________________________________
+
 Wildschweinlogo auf Main-GUI:
 By Ealancheliyan s.- https://thenounproject.com/term/boar/37057/ - Creative Commons
 
