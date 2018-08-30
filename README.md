@@ -20,7 +20,7 @@ By Ealancheliyan s.- https://thenounproject.com/term/boar/37057/ - Creative Comm
 Wildschweinkopf auf Loadingscreen und Trefferlagen-GUI:
 By Clker-Free-Vector-Images - Pixabay
 
-
+Alle weiteren Bilder kommen von Pixabay
 
 
 
